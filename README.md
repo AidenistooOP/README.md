@@ -15,5 +15,5 @@ Always down to chat! Contact me on one of the platforms down below!
 You can reach out to me on a multitude of platforms!
 
 Email    : aidenonyenwenu@gmail.com OR ps241150@summacollege.nl <br>
-Discord  : !  Aiden#2007 <br>
+Discord  : [!  Aiden#2007]() <br>
 LinkedIn : [Aiden Onyenwenu](https://www.linkedin.com/in/aiden-onyenwenu/)
